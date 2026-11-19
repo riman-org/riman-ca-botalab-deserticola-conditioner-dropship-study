@@ -1,0 +1,2 @@
+# riman-ca-botalab-deserticola-conditioner-dropship-study
+RIMAN Skincare &amp; BOTALAB Deserticola Conditioner (formerly Water Treatment) (Canada): Clinical Efficacy &amp; Zero-Inventory Drop-Shipping Viability of BOTALAB Deserticola Conditioner in the Canadian... 6-language paper, n=200 dataset &amp; INCI index: https://www.riman.win/www/en/reports/detail/ca-botalab-deserticola-conditioner-dropship-study.html
